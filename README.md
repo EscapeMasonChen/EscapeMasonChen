@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EscapeCWS  
+- 👋 Hi, I’m @EscapeMasonChen  
 You can call me Mason  
 I'm a student in Renmin University of China  
 - 👀 I’m interested in FFXIV(an MMORPG game), running, hiking  
